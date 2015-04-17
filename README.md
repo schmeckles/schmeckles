@@ -1,2 +1,0 @@
-# schmeckles
-DerpCoin diddley tit
